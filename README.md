@@ -20,5 +20,5 @@ Infine in *Parts* c'è ciò che riguarda l'hardware
 ___
 
 [Foto](https://photos.app.goo.gl/JzGCG9cJkmNCGGC89)
-
+[Video](https://youtu.be/4l6RoOeR0KE)
 [Video realizzato per il concorso](https://www.youtube.com/watch?v=Tt9Y_OJWLqI)
